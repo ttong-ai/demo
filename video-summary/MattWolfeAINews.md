@@ -1,4 +1,4 @@
-## Exploring Futur Tools: Your Ultimate Guide for AI News and Tools
+## Exploring Futur Tools: Your Ultimate Guide for AI News and Tools (Oct 13, 2023)
 
 Source Video: https://www.youtube.com/watch?v=VY3cPeiskKI (by Matt Wolfe)
 

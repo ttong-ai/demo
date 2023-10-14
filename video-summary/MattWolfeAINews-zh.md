@@ -1,4 +1,4 @@
-## 探索未来工具：AI新闻与工具推荐平台介绍
+## 探索未来工具：AI新闻与工具推荐平台介绍 (Oct 13, 2023)
 
 Source Video: https://www.youtube.com/watch?v=VY3cPeiskKI (by Matt Wolfe)
 
