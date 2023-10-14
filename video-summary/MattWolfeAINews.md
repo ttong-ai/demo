@@ -1,5 +1,8 @@
 ## Exploring Futur Tools: Your Ultimate Guide for AI News and Tools
 
+Source Video: https://www.youtube.com/watch?v=VY3cPeiskKI (by Matt Wolfe)
+
+Disclaimer: This is for educational and demo purposes only. All contents are credited to original creator. 
 
 ### 1. AI advancements and contributions by various companies
 
